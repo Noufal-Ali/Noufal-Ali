@@ -12,5 +12,3 @@
 
 😄 Pronouns: He/Him
 
-⚡ Fun fact: I’m a passionate football fan and never miss a match of my favorite team.
-
